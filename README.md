@@ -1,5 +1,5 @@
 
-Woah look like some1 is bored enough to take a look at my ppage.. heh
+Woah looks like some1 is bored enough to take a look at my ppage.. heh
 since you've stepped in here. Guess we will have a talk ?
 
 aight so 
