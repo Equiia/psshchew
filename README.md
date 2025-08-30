@@ -10,7 +10,7 @@ since you've stepped in here. Guess we will have a talk ?
 >
 >(Don't even think abt digging n stalking me for more info and i am talking about *some* fuckass weirdos that keeps following me around)
 >
->For the love of god if you are over the age of 25 and still playing pony town,please don't interact with me, i am very anxious talking to adults,
+>For the love of god if you are over the age of 25 and still play pony town,please don't interact with me, i am very anxious talking to adults,
 >
 >(Normal friends are ok ig..? Just dont be weird)
 >
