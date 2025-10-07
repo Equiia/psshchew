@@ -1,8 +1,8 @@
 
-Woah looks like some1 is paitient/bored enough to take a look at my ppage.. heh
+Woah looks like some1 is patient/bored enough to take a look at my ppage.. heh
 since you've stepped in here. Guess we will have a talk ?
 
->I dont support anyone problematic i am following here,n i dont check their bio,info 2. 
+>I dont support anyone problematic i am following here,n i dont check their bio,info 2. (INCLUDING PROSHIPPERS/DARK/ANY PROBLEMATIC PPL IN GEN.)
 >
 >Its very random n i follow every single person i see on this acc
 >
