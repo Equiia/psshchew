@@ -2,7 +2,7 @@
 Woah looks like some1 is patient/bored enough to take a look at my ppage.. heh
 since you've stepped in here. Guess we will have a talk ?
 >Pst also if you don't have anything nice to say, respectfully don't interact.
-
+>
 >I dont support anyone problematic i am following here,n i dont check their bio,info 2. >>**(INCLUDING PROSHIPPERS/DARK/ANY PROBLEMATIC PPL IN GEN.)**<<
 >
 >Its very random n i follow every single person i see on this acc
