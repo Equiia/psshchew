@@ -13,7 +13,6 @@ since you've stepped in here. Guess we will have a talk ?
 >
 >For the love of god if you are over the age of 25 and still play pony town,please don't interact with me, i am very anxious talking to adults,
 >
->(Normal friends are ok ig..? Just dont be weird)
 >
 >check out my MAIN one..fo more info in here lala
 >
