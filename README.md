@@ -14,10 +14,8 @@ since you've stepped in here. Guess we will have a talk ?
 >For the love of god if you are over the age of 25 and still play pony town,please don't interact with me, i am very anxious talking to adults,
 >
 >
->check out my MAIN one..fo more info in here lala
+>check out my MAIN one..fo more info in here !
 >
-> its in my bio incase you are not aware of it (YOU MUST SEE THAT GRRRGRGR/This is mmy ALT,spam follo randos :3)
->
-> also i am very funnies,pls talk with me ols pls pls 
+> its in my bio incase you are not aware of it
 >
 >  ![Hits](https://komarev.com/ghpvc/?username=Equiia&label=Tea_party&color=orange&style=flat)
