@@ -11,7 +11,7 @@ To start off..
 >
 >I like to keep some specific media private/for extreme close friends or if you are the right person,i might spoil some info.
 >
->(Don't even think abt digging n stalking me for more info and i am talking about *some* fuckass weirdos that keeps following me around)
+>(Don't even think abt digging n stalking me for more info and i am talking about *some* weirdos that keeps following me around)
 >
 >For the love of god if you are over the age of 25 and still play pony town,please don't interact with me, i am very anxious talking to adults,
 >
