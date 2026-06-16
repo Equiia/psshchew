@@ -13,9 +13,6 @@ To start off..
 >
 >(Don't even think abt digging n stalking me for more info and i am talking about *some* weirdos that keeps following me around)
 >
->For the love of god if you are over the age of 25 and still play pony town,please don't interact with me, i am very anxious talking to adults,
->
->
 >check out my MAIN one..fo more info in here !
 >
 > its in my bio incase you are not aware of it
