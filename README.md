@@ -3,9 +3,11 @@ Sup spectators,welcome to the tea party where we discuss and tea.
 To start off..
 > If you don't have anything nice to say, respectfully don't interact.
 >
->I dont support anyone problematic i am following here,n i dont check their bio,info 2. >>**(INCLUDING PROSHIPPERS/DARK/ANY PROBLEMATIC PPL IN GEN.)**<<
+>I dont support anyone problematic i am following here,n i dont check their bio,info 2. >>**(INCLUDING DARKSHIP/EXTREMELY PROBLEMATIC MEDIA IN GEN.)**<<
 >
->Its very random n i follow every single person i see on this acc
+> ^Bonus: I couldn't care less if you are one,but please limit interaction with me.
+>
+> Its very random n i follow every single person i see on this acc
 >
 >I like to keep some specific media private/for extreme close friends or if you are the right person,i might spoil some info.
 >
