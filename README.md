@@ -5,7 +5,7 @@ To start off..
 >
 >I dont support anyone problematic i am following here,n i dont check their bio,info 2. >>**(INCLUDING DARKSHIP/EXTREMELY PROBLEMATIC MEDIA IN GEN.)**<<
 >
-> ^Bonus: I couldn't care less if you are one,but please limit interaction with me.
+> ^Bonus: I couldn't care less if you are one,but please limit interaction or don't int with me.
 >
 > Its very random n i follow every single person i see on this acc
 >
