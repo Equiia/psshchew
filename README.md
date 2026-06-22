@@ -17,4 +17,4 @@ To start off..
 >
 > its in my bio incase you are not aware of it
 >
->  ![Hits](https://komarev.com/ghpvc/?username=Equiia&label=Tea_party&color=orange&style=flat)
+>  ![Hits](https://komarev.com/ghpvc/?username=Equiia&label=Tea_party&color=blue&style=flat)
