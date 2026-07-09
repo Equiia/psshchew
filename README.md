@@ -3,7 +3,9 @@ Sup spectators,welcome to the tea party where we discuss and tea.
 To start off..
 > If you don't have anything nice to say, respectfully don't interact.
 >
->I dont support anyone problematic i am following here,n i dont check their bio,info 2. >>**(INCLUDING DARKSHIP/HARDCORE FANS OF PROBLEMATIC MEDIA IN GEN.)**<<
+>I dont support anyone problematic i am following here,n i dont check their bio,info 2.
+>
+> =>**(INCLUDING DARKSHIP/HARDCORE FANS OF PROBLEMATIC MEDIA IN GEN.)**<=
 >
 > ^Bonus: I couldn't care less if you are one,but please limit interaction or don't int with me.
 >
